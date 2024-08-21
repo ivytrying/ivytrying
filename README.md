@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @introvertedblob
 - 👀 I’m interested in frogs
-- 🌱 I’m currently learning stuff
+- 🌱 I’m currently learning stuff 'n things
 - 😄 Pronouns: he/any
 - ⚡ Fun fact: rain frogs can nither jump nor swim due to their rotund body's and short leg's
 
